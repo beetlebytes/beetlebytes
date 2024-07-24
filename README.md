@@ -25,6 +25,9 @@ NO THEY.
 
 
 *i need more friends, dont b shy to come up to me! i dont bite!! ( pleasepleaseplease )
+
+
+
 BUUUTT byi ;
 - i ramble WAAAY too much ( sumtimes )
 - i also get uncomfortable easily
