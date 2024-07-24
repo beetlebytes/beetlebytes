@@ -8,7 +8,10 @@ anywhere else - display name, or whatever i tell u to call me
 
 buuuut, my main names are beetle and byte.
 
+
+
 *pronouns ;
+
 he/him
 
 she/her
@@ -18,6 +21,8 @@ it/its
 bug/bugs
 
 NO THEY.
+
+
 
 *i need more friends, dont b shy to come up to me! i dont bite!! ( pleasepleaseplease )
 BUUUTT byi ;
