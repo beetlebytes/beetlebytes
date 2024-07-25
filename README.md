@@ -24,7 +24,7 @@ NO THEY.
 
 
 
-*i need more friends, dont b shy to come up to me! i dont bite!! ( pleasepleaseplease )
+*i need more friends, dont b shy and come up to me! i dont bite!! ( pleasepleaseplease )
 
 
 
@@ -35,7 +35,7 @@ BUUUTT byi ;
 - i may be dry at times, but i try my hardest to not be!!
   
 *i also dont wanna be friends with weirdos ...sooo heres my dni ; 
-- proship/comship
+- proship/darkship
 - anti recovery
 - people who think IDing as a character is weird/not valid
   
