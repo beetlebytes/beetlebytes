@@ -1,12 +1,15 @@
-*hey, welcome
+* hey, welcome
 
 i go by many names, but ;
 
-on *ponytown* - call me whatever pony i am atm
+on *ponytown* - call me whatever pony i am atm ( unless ive told you / made it clear that you can use my name )
 
 anywhere else - display name, or whatever i tell u to call me
 
-buuuut, my main names are beetle and byte.
+buuuut, my main names are ross, rifle, and requiem .
+
+
+plural but i dont like labels . ill tell you whos who if you ask .
 
 
 
@@ -14,13 +17,11 @@ buuuut, my main names are beetle and byte.
 
 he/him
 
-she/her
+that thing
 
 it/its
 
-bug/bugs
-
-NO THEY.
+NO THEY .
 
 
 
@@ -30,14 +31,20 @@ NO THEY.
 
 BUUUTT byi ;
 - i ramble WAAAY too much ( sumtimes )
-- i also get uncomfortable easily
+- i get uncomfortable at random times , theres not really a trigger for the random moments of uncomfy 
 - im not funny at all 💔
 - i may be dry at times, but i try my hardest to not be!!
   
-*i also dont wanna be friends with weirdos ...sooo heres my dni ; 
+heres my dni ; 
 - proship/darkship
 - anti recovery
-- people who think IDing as a character is weird/not valid
-  
+- evil people ( lowkey forgot what i meant by this but ill probably remember and change this later )
 
-  idk what else to put here, sorry!! i might be able 2 add more later, ty for reading!
+
+
+  fandoms / interests ! ;
+  - forsaken
+  - phighting!
+  - roblox in general
+  - roblox admins
+  - 
