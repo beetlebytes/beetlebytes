@@ -47,4 +47,4 @@ heres my dni ;
   - phighting!
   - roblox in general
   - roblox admins
-  - 
+  - etc (read strawpage :3)
