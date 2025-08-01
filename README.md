@@ -4,10 +4,10 @@
 
  ageless . 07.09
 
-i love my boyfriend!!!!!! i love valentine!!!!!!
+i love valentine!!!!!!
 
 ♡
-
+!
 ★
 
  Current Interests ;
